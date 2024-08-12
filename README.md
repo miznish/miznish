@@ -6,4 +6,4 @@
 - 💬 Ask me about the weirdest thing I have tried to code.
 - 📫 How to reach me: miznish.t.me
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: 
+- ⚡ Fun fact: talking to inanimate object feels therapeutic
